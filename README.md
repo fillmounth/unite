@@ -1,2 +1,2 @@
 ![header](/assets/header.gif)
-# I`m beginner SOFTWARE ENGINEER, OSINT SPECIALIST and PENTESTER
+# ɪ`ᴍ ʙᴇɢɪɴɴᴇʀ sᴏꜰᴛᴡᴀʀᴇ ᴇɴɢɪɴᴇᴇʀ, ᴏsɪɴᴛ sᴘᴇᴄɪᴀʟɪsᴛ ᴀɴᴅ ᴘᴇɴᴛᴇsᴛᴇʀ
